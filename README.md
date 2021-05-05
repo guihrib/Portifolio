@@ -8,4 +8,4 @@
 ```
 **Para entrar em contato comigo acesse [meu perfil](https://github.com/guilhermedsribeiro) 🐱 aqui no GitHub**
 
-![guih rib](https://user-images.githubusercontent.com/61317250/116988562-f0d56e80-aca6-11eb-90d4-9aac433033f0.png)
+![guih rib](https://user-images.githubusercontent.com/61317250/116988562-f0d56e80-aca6-11eb-90d4-9aac433033f0.png?size=2046)
